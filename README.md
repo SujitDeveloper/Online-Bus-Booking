@@ -87,7 +87,3 @@ online cinema ticket booking system in php,
 online movie ticket booking system in php code,
 online bus ticket booking system php source code,
 online movie ticket booking system in php ppt,
-
-visite https://projectworlds.in
-
-#whatsapp 6263056779 
